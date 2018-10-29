@@ -8,7 +8,7 @@
 #### 8
 #### 9 Github is really awesome
 #### 10
-#### 11 life sucks
+#### 11 life and school sucks
 #### 12
 #### 13
 #### 14
