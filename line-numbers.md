@@ -6,7 +6,7 @@
 #### 6
 #### 7 Life is hard
 #### 8
-#### 9 github is very good
+#### 9 Github is really awesome
 #### 10
 #### 11
 #### 12
